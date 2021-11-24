@@ -1,0 +1,1 @@
+# sok-1003-semesteroppgave1
